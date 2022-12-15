@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jazim-upenn
+- 👋 Hi, I’m @jawwwek! Also known as Jarek. 
 - 👀 I’m interested in anime and manga.
 - 🌱 I’m currently learning everything! :)
 - 💞️ I’m looking to collaborate on anything!
